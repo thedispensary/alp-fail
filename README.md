@@ -71,4 +71,4 @@ In all good conscience, we can no longer support Labor. And we will be advocatin
 - [Will Hackett](https://www.willhackett.com)
 - [James Hanford](http://projkt.io/)
 - [James Austin](http://jamesaust.in/)
-
+- [Adam Racovalis](http://thedispensary.co/)
